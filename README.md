@@ -1,1 +1,0 @@
-# royalptaylor.github.io
